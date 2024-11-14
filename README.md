@@ -2,7 +2,7 @@
 - 👀 I’m interested in my Family
 - 🌱 I’m currently learning GitHub
 - 💞️ I’m looking to collaborate on [will define someday]
-- 📫 How to reach me [why you want to :)]
+- 📫 How to reach me [why do you want to :)]
 - 😄 Pronouns: Mr / He / him
 - ⚡ Fun fact: Earth isn't actually round.
 
